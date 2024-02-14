@@ -11,4 +11,4 @@ Je parle plusieurs langues, notamment le français, l'anglais,
 l'italien, l'arabe et le berbere.
 
 ## Contact
-📧 [Adresse e-mail] | 💼 [LinkedIn] | 🐦 [Twitter]
+📧 [salahtazu1996@gmail.com] | 💼 [https://www.linkedin.com/in/salaheddine-tazoukanit/] | 🐦 [Twitter]
